@@ -1,0 +1,2 @@
+# hskartal32
+ınternet
